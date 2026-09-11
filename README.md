@@ -7,10 +7,11 @@
 
 | 分类 | 文章数 | 索引 |
 | --- | ---: | --- |
-| 加拿大pc28预测 | 8 | [查看分类文章](category-%E5%8A%A0%E6%8B%BF%E5%A4%A7pc28%E9%A2%84%E6%B5%8B.md) |
+| 加拿大pc28预测 | 9 | [查看分类文章](category-%E5%8A%A0%E6%8B%BF%E5%A4%A7pc28%E9%A2%84%E6%B5%8B.md) |
 
 ## 最近发布
 
+- [2026年9月资深智库预测:玩北京𝔭𝔠𝟚𝟠能赚钱吗-九华财经](https://github.com/jonsee8267/zhanghao_si/blob/main/2026%E5%B9%B49%E6%9C%88%E8%B5%84%E6%B7%B1%E6%99%BA%E5%BA%93%E9%A2%84%E6%B5%8B-%E7%8E%A9%E5%8C%97%E4%BA%AC%F0%9D%94%AD%F0%9D%94%A0%F0%9D%9F%9A%F0%9D%9F%A0%E8%83%BD%E8%B5%9A%E9%92%B1%E5%90%97-%E4%B9%9D%E5%8D%8E%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:ac9b15f1df48acd7fb8a2a35c09a802c37af5f0508a10da26335941f2d22ce60 -->
 - [2027年9月智库深度预测:𝑝𝑐𝟤𝟪软件机器人-财塔财经](https://github.com/jonsee8267/zhanghao_si/blob/main/2027%E5%B9%B49%E6%9C%88%E6%99%BA%E5%BA%93%E6%B7%B1%E5%BA%A6%E9%A2%84%E6%B5%8B-%F0%9D%91%9D%F0%9D%91%90%F0%9D%9F%A4%F0%9D%9F%AA%E8%BD%AF%E4%BB%B6%E6%9C%BA%E5%99%A8%E4%BA%BA-%E8%B4%A2%E5%A1%94%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:d8b9263444854207d2ed2138e4dd2c93e14226dc05952e4d781bbf94f8b6e348 -->
 - [2026年9月官方数据预测:𝒑𝒄𝟐𝟖玩法规则图片-长兴财经](https://github.com/jonsee8267/zhanghao_si/blob/main/2026%E5%B9%B49%E6%9C%88%E5%AE%98%E6%96%B9%E6%95%B0%E6%8D%AE%E9%A2%84%E6%B5%8B-%F0%9D%92%91%F0%9D%92%84%F0%9D%9F%90%F0%9D%9F%96%E7%8E%A9%E6%B3%95%E8%A7%84%E5%88%99%E5%9B%BE%E7%89%87-%E9%95%BF%E5%85%B4%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:b951b3523fa943c0d8b4cab1d725dd5ffd6c5cc29d2c9577dd615752e674bc1a -->
 - [2026年9月精选机构预测:𝕡𝕔𝟚𝟠测试-美亚财经](https://github.com/jonsee8267/zhanghao_si/blob/main/2026%E5%B9%B49%E6%9C%88%E7%B2%BE%E9%80%89%E6%9C%BA%E6%9E%84%E9%A2%84%E6%B5%8B-%F0%9D%95%A1%F0%9D%95%94%F0%9D%9F%9A%F0%9D%9F%A0%E6%B5%8B%E8%AF%95-%E7%BE%8E%E4%BA%9A%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:fc5898c05a3871d65696020e9a1d7dabeabb4181ee5cba65aaa20a91da3812ba -->
